@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ielht
+- 👀 I’m interested in 3D\Blender\unity
+- 🌱 I’m currently learning 
+- 📫 How to reach me TG @ielht
+- ⚡ Fun fact: i can dive 14 meters
